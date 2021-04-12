@@ -12,6 +12,7 @@ https://www.cognitoforms.com/CSclass1/EmailID
 Also report to https://support.github.com/contact?tags=rr-remove-data
 
 ## Udemy paid courses from your answers
+https://www.udemy.com/user/zs-79/
 ![image](https://user-images.githubusercontent.com/82340756/114321079-efb98300-9ae6-11eb-9310-3d96cfc19093.png)
 
 
